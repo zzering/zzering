@@ -1,5 +1,5 @@
 Hello  
-CUG大二  
+CUG
 286337388@qq.com  
 
 
